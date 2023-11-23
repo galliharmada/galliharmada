@@ -13,5 +13,5 @@
   💢 Freelance is open 
 - 📫 How to reach me 
   💢 https://Linkedin.com/in/gallih-armada
-  💢 https://galliharmada.com
+  💢 https://galliharmada.site
 
